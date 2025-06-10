@@ -1,8 +1,12 @@
 # 💫 About Me:
 👋 Hi, I’m Soumodip Mondal
+
 🎮 Gamer at heart | 🎨 Sketching life | 📚 Living through books
+
 🧠 Always curious – exploring tech without settling
+
 💡 Learning by doing, breaking, and building
+
 🌱 Still exploring. Still evolving.
 
 
